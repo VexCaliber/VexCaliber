@@ -8,7 +8,7 @@
   Links: <br>
   LinkedIn: www.linkedin.com/in/VexCaliber <br>
   Fiverr  : https://www.fiverr.com/vexcaliber?public_mode=true <br>
-  
+  TipJar  :
   
   
   
