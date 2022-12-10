@@ -6,9 +6,9 @@
   I don't exactly know what's worth putting here, but...
   
   Links: <br>
-  LinkedIn: www.linkedin.com/in/VexCaliber <br>
-  Fiverr  : https://www.fiverr.com/vexcaliber?public_mode=true <br>
-  TipJar  :
+  LinkedIn:  www.linkedin.com/in/VexCaliber <br>
+  Fiverr:  https://www.fiverr.com/vexcaliber?public_mode=true <br>
+  Donations: https://cash.app/$VexMD 
   
   
   
