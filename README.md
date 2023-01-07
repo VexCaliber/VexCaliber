@@ -14,7 +14,7 @@
   I know you don't see much here...Most of what I've written has been in Java, and is proprietary.
   Have faith...I'm committed.  The gap in commits you see on the heat map was largely due to learning c#10.
   
-  
+  Fun Fact: Applying on indeed makes you 100% more likely to get unsolicited boner pill ads!
 
 
 - 👋 Hi, I’m @VexCaliber
